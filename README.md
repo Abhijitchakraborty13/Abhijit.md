@@ -8,13 +8,13 @@
 
 *I'm a Rookie in Developing*
 
-*Currently persuing undergraduate degree in **Computer Science And Engineering.***
+*Currently persuing undergraduate degree in 💻**Computer Science And Engineering.***
 
 
 
-*Studies at **Netaji Subhas Engineering College.***
+*👨‍🎓Studies at **Netaji Subhas Engineering College.***
 
-*Location- **kolkata, Garia.***
+*🚇Location- **kolkata, Garia.***
 
 
 
