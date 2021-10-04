@@ -1,5 +1,5 @@
 
-# ***HI, ITS ABHIJIT***
+# ***HI, <img src="https://github.com/mitul3737/mitul3737/blob/main/Wave.gif" height="55px" width="55px"> ITS ABHIJIT***
 
  *Here is my introduction of my readme file, hope u like it*
 
